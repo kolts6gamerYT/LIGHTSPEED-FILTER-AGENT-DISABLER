@@ -5,3 +5,4 @@ STEP 2 open the manege extetions
 step 3 click details on light speed flilter agent
 step 4 spam alow acses to url
 ALSO KNOW THAT YOU WILL NEED TO DO THIS EVREY NOW AND THEN
+TO FIND THE DOWNLOAD GO TO TAGS AND DOWNLOAD THE ZIP NOT THE SORCECODE.zip
